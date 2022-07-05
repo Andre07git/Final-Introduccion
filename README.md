@@ -6,7 +6,12 @@ Integrantes del grupo
 
 -Gaston Dorigutti
 
+el que lee es crack
+
 -Federico Sanchez
+
 
 Chinguenguenchas!!!!!!!
 
+
+CONFLICTO ARREGLADO, NOS PUSIMOS DE ACUERDO
